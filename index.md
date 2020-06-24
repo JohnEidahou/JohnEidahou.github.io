@@ -11,3 +11,6 @@ Schimpft gern und ist recht ruhelos.
 * eigensinnig
 * abenteuerlustig
 * schlau
+
+> Beside me the monstrumologist murmured, "I believe I am in hell, therefore I am there.
+
